@@ -1,4 +1,4 @@
-# 
+# Figma for macOS new Script - plugin support and typography tools offers the most advanced Figma for macOS script, with plugin support and typography tools. Ideal for professional
 
 
 
